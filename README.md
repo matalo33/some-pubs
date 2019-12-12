@@ -1,6 +1,6 @@
 # The some-pubs of Christmas
 
-Come one come all to this years installment of, not Twelve, but 🎅🎅 SOME Pubs of Christmas 🎄🎄.
+Come one, come all to this years installment of, not Twelve, but 🎅🎅 SOME Pubs of Christmas 🎄🎄.
  
 Have the _most_ fun by joining us at 🚉Farringdon🚉 at 4pm or have _some_ fun by joining anywhere else along the way 🚏. Last year a good strong number of people lasted right to the end having 👋 greeted and 👋 bid farewell to others just popping in to say hello.
  
@@ -36,4 +36,3 @@ Schedule (subject to last minute adjustments, no blame is assumed for closed pub
 ## Google Maps layer
 
 [Click here](https://www.google.com/maps/d/u/0/edit?mid=1ezHFp2DtdPSRaW7eTfOY9w4ri9UUlw4P&ll=51.53054824351682%2C-0.10930892066414799&z=14) to add all the map pins to your Google Maps in one go
- 
