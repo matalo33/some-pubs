@@ -1,4 +1,4 @@
-# The some-pubs of Christmas
+# The some-pubs of Christmas 🎄
 
 Come one, come all to this years installment of, not Twelve, but 🎅🎅 SOME Pubs of Christmas 🎄🎄.
  
@@ -6,7 +6,7 @@ Have the _most_ fun by joining us at 🚉Farringdon🚉 at 4pm or have _some_ fu
  
 Fourty-five🕘 minutes per pub including travel time🚏, and most of them are very close together. After some pubs have been visited we'll hit up the timeless classic o2 Academy Islington for some cheesy fun 🕺💃 until the wee hours.
 
-This isn't an enforced beer-a-thon 🍺, you just come be social and drink whatever the hell you like.
+This isn't an enforced beer-a-thon 🍺, you just come be social and drink whatever the hell you like 🚰🍸🍹.
 
 ## Live updates
 
