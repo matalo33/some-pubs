@@ -1,37 +1,29 @@
-## Welcome to GitHub Pages
+# The some-pubs of Christmas
 
-You can use the [editor on GitHub](https://github.com/matalo33/some-pubs/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
+Come one come all to this years installment of, not Twelve, but SOME Pubs of Christmas.
+ 
+Have the most fun by joining us at Farrington at 4pm or have some fun by joining anywhere else along the way.
+ 
+Fourty-five minute per pub including travel time, and most of them are very close together. After some pubs have been visited we'll hit up the timeless classic o2 Academy Islington for some cheesy fun untitl the wee hours.
+ 
+Schedule (subject to last minute adjustments, no blame is assumed for closed pubs or people lost along the way).
+ 
+## The pubs
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+| Arrival Time | Pub |
+| 1600 | The Castle Farringdon |
+| 1645 | Betsy Trotwood |
+| 1730 | Exmouth Arms |
+| 1815 | The George and Monkey |
+| 1900 | The Three Johns |
+| 1945 | The Angelic |
+| 2030 | The Bull Islington |
+| 2115 | King's Head Theatre Pub |
+| 2200 | The New Rose |
+| 2245 | Steam Passage |
+| 2330+ | o2 Academy Islington |
 
-### Markdown
+## Google Maps
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/matalo33/some-pubs/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+(Click here)[https://www.google.com/maps/d/u/0/edit?mid=1ezHFp2DtdPSRaW7eTfOY9w4ri9UUlw4P&ll=51.53054824351682%2C-0.10930892066414799&z=14]
+ 
