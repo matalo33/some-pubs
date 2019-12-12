@@ -29,7 +29,7 @@ Schedule (subject to last minute adjustments, no blame is assumed for closed pub
 | 2245 | Steam Passage 🚂 | [map](https://goo.gl/maps/LREZYFx1EVxKxswc9) |
 | 2330+ | o2 Academy Islington 🎼 | [map](https://goo.gl/maps/iXcGMQvcddeQM8ae8) |
 
-## Dress Code
+## Dress code
 
 🎅🤶 Anything RED 🤶🎅
 
