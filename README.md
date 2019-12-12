@@ -1,6 +1,6 @@
 # The some-pubs of Christmas 🎄
 
-Come one, come all to this years installment of, not Twelve, but 🎅🎅 SOME Pubs of Christmas 🎄🎄.
+Come one, come all to this years installment of, not Twelve, but 🎅🎅 SOME Pubs of Christmas 🎄🎄 on December 21st.
  
 Have the _most_ fun by joining us at 🚉Farringdon🚉 at 4pm or have _some_ fun by joining anywhere else along the way 🚏. Last year a good strong number of people lasted right to the end having 👋 greeted and 👋 bid farewell to others just popping in to say hello.
  
