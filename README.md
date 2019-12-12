@@ -16,18 +16,18 @@ Keep an eye on this webpage, and also you can [join this broadcast-only whatsapp
 
 Schedule (subject to last minute adjustments, no blame is assumed for closed pubs or people lost along the way). I'll try keep this up to date if the plan changes in the day, bookmark this page!
 
-| Arrival Time | Pub |
-| 1600 | The Castle Farringdon 🏰 | [https://goo.gl/maps/AEoyvTAqiswg5YBC9] |
-| 1645 | Betsy Trotwood 💃 | https://goo.gl/maps/kxDiyJELDL8Fj5Qw9 |
-| 1730 | Exmouth Arms 💪 | https://goo.gl/maps/qRnipBJZun7XZZsJ8 |
-| 1815 | The George and Monkey 🤴🐒 | https://goo.gl/maps/sGubPUh3QXedHRwX9 |
-| 1900 | The Three Johns 👨👨👨 | https://goo.gl/maps/kgKfWnVDFi6FXQdM7 |
-| 1945 | The Angelic 👼 | https://goo.gl/maps/kYXxbyyPKJbBz8Ud9 |
-| 2030 | The Bull Islington 🐂 | https://goo.gl/maps/HSd219ViwZXhBVCJ7 |
-| 2115 | King's Head Theatre Pub 🤴🗣️| https://goo.gl/maps/sa7WMs2zBxzHqnGC6 |
-| 2200 | The New Rose 🌹 | https://g.page/thenewrosen1?share |
-| 2245 | Steam Passage 🚂 | https://goo.gl/maps/LREZYFx1EVxKxswc9 |
-| 2330+ | o2 Academy Islington 🎼 | https://goo.gl/maps/iXcGMQvcddeQM8ae8 |
+| Arrival Time | Pub | Map link |
+| 1600 | The Castle Farringdon 🏰 | [map](https://goo.gl/maps/AEoyvTAqiswg5YBC9) |
+| 1645 | Betsy Trotwood 💃 | [map](https://goo.gl/maps/kxDiyJELDL8Fj5Qw9) |
+| 1730 | Exmouth Arms 💪 | [map](https://goo.gl/maps/qRnipBJZun7XZZsJ8) |
+| 1815 | The George and Monkey 🤴🐒 | [map](https://goo.gl/maps/sGubPUh3QXedHRwX9) |
+| 1900 | The Three Johns 👨👨👨 | [map](https://goo.gl/maps/kgKfWnVDFi6FXQdM7) |
+| 1945 | The Angelic 👼 | [map](https://goo.gl/maps/kYXxbyyPKJbBz8Ud9) |
+| 2030 | The Bull Islington 🐂 | [map](https://goo.gl/maps/HSd219ViwZXhBVCJ7) |
+| 2115 | King's Head Theatre Pub 🤴🗣️| [map](https://goo.gl/maps/sa7WMs2zBxzHqnGC6) |
+| 2200 | The New Rose 🌹 | [map](https://g.page/thenewrosen1?share) |
+| 2245 | Steam Passage 🚂 | [map](https://goo.gl/maps/LREZYFx1EVxKxswc9) |
+| 2330+ | o2 Academy Islington 🎼 | [map](https://goo.gl/maps/iXcGMQvcddeQM8ae8) |
 
 ## Dress Code
 
