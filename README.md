@@ -35,4 +35,4 @@ Schedule (subject to last minute adjustments, no blame is assumed for closed pub
 
 ## Google Maps layer
 
-[Click here](https://www.google.com/maps/d/u/0/edit?mid=1ezHFp2DtdPSRaW7eTfOY9w4ri9UUlw4P&ll=51.53054824351682%2C-0.10930892066414799&z=14) to add all the map pins to your Google Maps in one go
+[Click here](https://goo.gl/maps/xEJUeDCMrK3Yij8y6) to add all the map pins to your Google Maps in one go
