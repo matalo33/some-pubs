@@ -20,7 +20,7 @@ Schedule (subject to last minute adjustments, no blame is assumed for closed pub
 | 2030 | The Bull Islington 🐂 | [map](https://goo.gl/maps/HSd219ViwZXhBVCJ7) |
 | 2115 | King's Head Theatre Pub 🤴🗣️| [map](https://goo.gl/maps/sa7WMs2zBxzHqnGC6) |
 | 2200 | The New Rose 🌹 | [map](https://g.page/thenewrosen1?share) |
-| 2245 | Steam Passage 🚂 | [map](https://goo.gl/maps/LREZYFx1EVxKxswc9) |
+| 2245 | Nags Head 🐴 | [map](https://maps.app.goo.gl/KqejfxPWXKJ97x8i8) |
 | 2330+ | o2 Academy Islington 🎼 | [map](https://goo.gl/maps/iXcGMQvcddeQM8ae8) |
 
 ## About
