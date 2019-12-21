@@ -1,16 +1,10 @@
 # The some-pubs of Christmas 🎄
 
-Come one, come all to this years installment of, not Twelve, but 🎅🎅 SOME Pubs of Christmas 🎄🎄 on December 21st.
- 
-Have the _most_ fun by joining us at 🚉Farringdon🚉 at 4pm or have _some_ fun by joining anywhere else along the way 🚏. Last year a good strong number of people lasted right to the end having 👋 greeted and 👋 bid farewell to others just popping in to say hello.
- 
-Fourty-five🕘 minutes per pub including travel time🚏, and most of them are very close together. After some pubs have been visited we'll hit up the timeless classic o2 Academy Islington for some cheesy fun 🕺💃 until the wee hours.
-
-This isn't an enforced beer-a-thon 🍺, you just come be social and drink whatever the hell you like 🚰🍸🍹.
-
 ## Live updates
 
-Keep an eye on this webpage, and also you can [join this broadcast-only whatsapp group](https://chat.whatsapp.com/BiYZNJ4iZNfF8eAdNjRzGQ).
+[Join this broadcast-only whatsapp group](https://chat.whatsapp.com/BiYZNJ4iZNfF8eAdNjRzGQ).
+
+**Update 1**: Pub 2, Betsy Trotwood, doesn't open until later, replaced with Brewdog Clerkenwell.
  
 ## The pubs
 
@@ -18,7 +12,7 @@ Schedule (subject to last minute adjustments, no blame is assumed for closed pub
 
 | Arrival Time | Pub | Map link |
 | 1600 | The Castle Farringdon 🏰 | [map](https://goo.gl/maps/AEoyvTAqiswg5YBC9) |
-| 1645 | Betsy Trotwood 💃 | [map](https://goo.gl/maps/kxDiyJELDL8Fj5Qw9) |
+| 1645 | BrewDog Clerkenwell 🍺🐶 | [map](https://goo.gl/maps/bTgP5wNcGcFhkC4H6) |
 | 1730 | Exmouth Arms 💪 | [map](https://goo.gl/maps/qRnipBJZun7XZZsJ8) |
 | 1815 | The George and Monkey 🤴🐒 | [map](https://goo.gl/maps/sGubPUh3QXedHRwX9) |
 | 1900 | The Three Johns 👨👨👨 | [map](https://goo.gl/maps/kgKfWnVDFi6FXQdM7) |
@@ -28,6 +22,16 @@ Schedule (subject to last minute adjustments, no blame is assumed for closed pub
 | 2200 | The New Rose 🌹 | [map](https://g.page/thenewrosen1?share) |
 | 2245 | Steam Passage 🚂 | [map](https://goo.gl/maps/LREZYFx1EVxKxswc9) |
 | 2330+ | o2 Academy Islington 🎼 | [map](https://goo.gl/maps/iXcGMQvcddeQM8ae8) |
+
+## About
+
+Come one, come all to this years installment of, not Twelve, but 🎅🎅 SOME Pubs of Christmas 🎄🎄 on December 21st.
+ 
+Have the _most_ fun by joining us at 🚉Farringdon🚉 at 4pm or have _some_ fun by joining anywhere else along the way 🚏. Last year a good strong number of people lasted right to the end having 👋 greeted and 👋 bid farewell to others just popping in to say hello.
+ 
+Fourty-five🕘 minutes per pub including travel time🚏, and most of them are very close together. After some pubs have been visited we'll hit up the timeless classic o2 Academy Islington for some cheesy fun 🕺💃 until the wee hours.
+
+This isn't an enforced beer-a-thon 🍺, you just come be social and drink whatever the hell you like 🚰🍸🍹.
 
 ## Dress code
 
