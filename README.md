@@ -4,7 +4,7 @@
 
 [Join this broadcast-only whatsapp group](https://chat.whatsapp.com/BiYZNJ4iZNfF8eAdNjRzGQ).
 
-**Update 1**: Pub 2, Betsy Trotwood, doesn't open until later, replaced with Brewdog Clerkenwell.
+1. Pub #2, Betsy Trotwood, doesn't open until later, replaced with Brewdog Clerkenwell.
  
 ## The pubs
 
