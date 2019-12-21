@@ -5,7 +5,8 @@
 [Join this broadcast-only whatsapp group](https://chat.whatsapp.com/BiYZNJ4iZNfF8eAdNjRzGQ).
 
 1. Pub #2, Betsy Trotwood, doesn't open until later, replaced with Brewdog Clerkenwell.
- 
+1. Pub #10 switched to Nags Head 
+
 ## The pubs
 
 Schedule (subject to last minute adjustments, no blame is assumed for closed pubs or people lost along the way). I'll try keep this up to date if the plan changes in the day, bookmark this page!
